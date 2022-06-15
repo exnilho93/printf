@@ -1,4 +1,4 @@
-I'm collaborating with Maxwell Ojo in this project and he is a dick because he is actually refusing to link up so we can work together..
+I'm suppose to collaborate with Maxwell Ojo in this project however, he is unavailable at the moment.
 
 REQUIREMENTS
 
